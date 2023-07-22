@@ -27,23 +27,28 @@ Student Councillors.
                                     SPEAKER
                                     HOW HAVE YOU WORKED ?
  He has been humbleand and disciplined. Undersytanding his people, consulting teachers where he has challenges,being coperative,listening to the ideas and bringing them close eliminating fear.
- INSPIRATION
+
+                                  INSPIRATION
+                                  
  Personally since my childhood at only 6 years, I was this kind of person who loved Public Gatherings. The way the people who conducted them used to behave, give strong speeches and encouraging words. When I joined Mengo Senior School, my inspiration was Sello Julius Malema one of the famous politicians in South Africa . He is determined by courageosness.
 
 
-                                    what have you learnt ?
-                                    We are living with good and positive people also bad people. I got people who encourage and made me love this and those who discourage.
-                                    God being my guide. Having good mentors on chaning something 
-                                    Being determined and not to give up, believing in oneself .
-                                    Loving what you do (your work)
-                                    Giving up some situaations for the better so as to give a good example i.e sacrififing something because of the responsibilites and title you have to uphold.
-                                    As a leader, I learnt that this world is for perfectionists therefore we must present our ideas for perfection.
-                                    Preparing the next generation to be better leaders than we have been .
+                                    WHAT HAVE YOU LEARNT ?
+                                    
+We are living with good and positive people also bad people. I got people who encourage and made me love this and those who discourage.
+God being my guide. Having good mentors on chaning something 
+Being determined and not to give up, believing in oneself .
+ Loving what you do (your work)
+ Giving up some situaations for the better so as to give a good example i.e sacrififing something because of the responsibilites and title you have to uphold.
+ As a leader, I learnt that this world is for perfectionists therefore we must present our ideas for perfection.
+Preparing the next generation to be better leaders than we have been .
+                                    
                                     CHALLENGES FACED
-                                    Moibilising people into one person because every one has different ideologies and if is not easy mobilising them.
-                                    My fellow leader, some have shown that they are not her eto serve their people but show business.
-                                    Balancing academics and leadership is also not easy and concentrating on one oneself.
-                                    Since we are new leaders in powewr, we have hard time with some administrations and some teachers are too tough.
+                              
+ Moibilising people into one person because every one has different ideologies and if is not easy mobilising them.
+ My fellow leader, some have shown that they are not her eto serve their people but show business.
+ Balancing academics and leadership is also not easy and concentrating on one oneself.
+ Since we are new leaders in powewr, we have hard time with some administrations and some teachers are too tough.
                                     
                                     
   
