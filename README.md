@@ -25,6 +25,7 @@ Sanitary Prefects,
 
 Entertainment Prefects,Timekeepers, and
 Student Councillors.
+![image](https://github.com/k1b0oka/k1b0oka/assets/140007928/a58781f6-883f-4b7c-8f23-19ad5a44b3d7)
 
       
       These prefects put on blue shirts while the councillors wear white tagged ones for easy identification.
