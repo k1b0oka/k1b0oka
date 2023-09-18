@@ -177,13 +177,27 @@ Difficulty in balancing, revising for midterm and campaigning .
 
 
  INSPIRATION
- Love for speeches
- love to relate with other people
-
- EXPERIENCE
+ Love for speechescts put on blue shirts instead of the white that the others wear.
+ 
+EXPERIENCE
 Has experienced unity , togetherness , kindness and respect in the council body for the small time he has so far led in their regime.
 
-LESSON LEARNT FROM 
+LESSON LEARNT FROM
+
+
+THE ROLES OF STUDENT LEADERS IN MENGO SENIOR SCHOOL
+
+    To maintain discipline
+    Ensure that prefects do their job of instilling discipline in the general student body.
+    Develop in students an attitude of patriotism and loyalty to the school.
+    Ensure a good relationship between the student body and the student leaders.
+    Ensure that the House Captains do their job and help them in any way possible.
+    Serve as one with whom their fellow students can identify by displaying admirable qualities.
+    Be aware of their behaviour at all times, as they are the school’s major ambassadors.
+    Present students’ concerns to the school administration.
+    Meet with the Patron regularly to discuss issues, which impact the student body and the vision and direction of the school.
+
+
  
  
  
