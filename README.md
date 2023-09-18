@@ -32,27 +32,27 @@ Student Councillors.
       These prefects put on blue shirts while the councillors wear white tagged ones for easy identification.
       
              HEAD PREFECT MENGO SENIOR SCHOOL( MUBIRU DANIEL)
-
-                                        
-       He had been inspired by a famous politician Robert Kyagulanyi Sentamu aka (BOBI WINE)     
+He is doing Math,Economics,Entrepreneurship and ICT in S5 N.
+       He was inspired by a famous politician Robert Kyagulanyi Sentamu aka (BOBI WINE)     
        He had support from friends.
        He possessed confidenceand trust.
-       
-                                          EXPERINCE DURING CAMPAIGNS
-                                    Scary,sleepless nights,tensions and worry
+                        
+             HEAD GIRL( Hon Nakkazi Mary)
+             INSPIRATION
+She was inspired Agaba Doreck the former headgirl of Mengo Senior School
+She was inspired by the good communication skills presented by various leaders.
 
-                              
                                     SPEAKER
+The current speaker is  Hon Kasozi Stephen 2023-2024.
 
+INSPIRATION
 He loved Public Gatherings. The way the people who conducted them used to behave, give strong speeches and encouraging words.
 When he  joined Mengo Senior School, his inspiration was Sello Julius Malema one of the famous politicians in South Africa .
 He is determined by courageosness.
-    SPEAKER
 
-                  
                                     HOW HAVE YOU WORKED ?
- He has been humbleand and disciplined. 
- Undersytanding his people, consulting teachers where he has challenges,being coperative,listening to the ideas and bringing them close eliminating fear
+ I have been humble and disciplined. 
+ Understanding his people, consulting teachers where he has challenges,being coperative,listening to the ideas and bringing them close eliminating fear.
 
                                
                         WHAT HAVE YOU LEARNT ?
@@ -64,8 +64,7 @@ Being determined and not to give up, believing in oneself .
  Giving up some situaations for the better so as to give a good example i.e sacrififing something because of the responsibilites and title you have to uphold.
  As a leader, I learnt that this world is for perfectionists therefore we must present our ideas for perfection.
 Preparing the next generation to be better leaders than we have been .
-                                    
-                       
+                                                          
                                     CHALLENGES FACED
                               
  Moibilising people into one person because every one has different ideologies and if is not easy mobilising them.
@@ -75,7 +74,6 @@ Preparing the next generation to be better leaders than we have been .
  
  DHP O LEVEL - ABEHO MUKAMA GLEN.
  
-
  HOW DID YOU FEEL DURING ELECTIONS?
  A little bit pressureb by the competition he had with Rickson.
  He had a hard time accessing the whole school and convicing them to vote for him since most students in O level showed more love for the competitor.
@@ -98,45 +96,36 @@ Preparing the next generation to be better leaders than we have been .
 
 CHAIRPERSON COUNCIL BODY--Twesigye Denson
 
-
 Inspiration
-CP OF 2018 Hon. Kenny due to his way of conduct as well as successors like Muhwezi Jasper and Atuhaire Bright .
+Chairperson OF 2018 Hon. Kenny due to his way of conduct as well as successors like Muhwezi Jasper and Atuhaire Bright .
 Encouragement from friends.
 
 
 EXPERIENCE
 Quiet challenging,pressurizing,and interesting.
 
-
 CHALLENGES
-Stiff competition that also leads to loss of friends.
+Stiff competition during campaigns that also leads to loss of friends.
 Disencouragement from people.
 Intimidation from students.
 Stess due to the campaigns.
 Difficulty in balancing, revising for midterm and campaigning .
 
-
  LESSONS LEARNT 
- Always trust in god
- Perrseverence
- Not minding all words people say
-
+ Always trust in God.
+ Perrseverence.
+ Not minding all words people say.
 
  FINAL REMARKS
-
  
  Words aim for your goal and no matter how many times you fall down, get up and keep fighting to reach your goal and always tusting in God .
- 
  
  GENERAL DUTIES -KATO NORIE 
  
  INSPIRATION
-
  
  What inspired me to be a leader is the fact that it has always been his passion
  to be the standing ovation for students and their strength in time of difficulty and belief for change.
- 
-
  
  EXPERIENCE.
  It has been an educative, and interesting adventure that mhas taught me to associate with different people of different people of different backgrounds,
@@ -156,10 +145,11 @@ Difficulty in balancing, revising for midterm and campaigning .
  One  should strive to achieve there dreams hard and that no one will feel bad for them if they dont achieve them. 
  They should trust God and stand strong and strike for the highest limit there is.
  
- DEPUTY HEAD PREFECT (ENID)
+ DEPUTY HEAD PREFECT ( Namsaazi Enid)
  
  INSPIRATION 
 - The current female parliamentary leaders.
+- To raise a voice for students.
 
  CHALLENGES 
  Pleasing everyone is hard.
@@ -177,12 +167,10 @@ Difficulty in balancing, revising for midterm and campaigning .
 
 
  INSPIRATION
- Love for speechescts put on blue shirts instead of the white that the others wear.
+ Love for speeches.
  
 EXPERIENCE
 Has experienced unity , togetherness , kindness and respect in the council body for the small time he has so far led in their regime.
-
-LESSON LEARNT FROM
 
 
 THE ROLES OF STUDENT LEADERS IN MENGO SENIOR SCHOOL
