@@ -29,9 +29,8 @@ Student Councillors.
 
       
       These prefects put on blue shirts while the councillors wear white tagged ones for easy identification.
-      In 2023, Mengo Senior School had a new innovation of e-voting where student laeders were voted online and some of those who were victors had various speeches to tell various people  and motivate students about various facts.
       
-                                        MUBIRU DANIEL ( HEAD PREFECT MENGO SENIOR SCHOOL)
+             HEAD PREFECT MENGO SENIOR SCHOOL( MUBIRU DANIEL)
 
                                         
        He had been inspired by a famous politician Robert Kyagulanyi Sentamu aka (BOBI WINE)     
@@ -41,17 +40,18 @@ Student Councillors.
                                           EXPERINCE DURING CAMPAIGNS
                                     Scary,sleepless nights,tensions and worry
 
+                              
+                                    SPEAKER
 
-                              SPEAKER
+He loved Public Gatherings. The way the people who conducted them used to behave, give strong speeches and encouraging words.
+When he  joined Mengo Senior School, his inspiration was Sello Julius Malema one of the famous politicians in South Africa .
+He is determined by courageosness.
+    SPEAKER
 
                   
                                     HOW HAVE YOU WORKED ?
- He has been humbleand and disciplined. Undersytanding his people, consulting teachers where he has challenges,being coperative,listening to the ideas and bringing them close eliminating fear.
-
-                                  INSPIRATION
-                                  
- Personally since my childhood at only 6 years, I was this kind of person who loved Public Gatherings. The way the people who conducted them used to behave, give strong speeches and encouraging words. When I joined Mengo Senior School, my inspiration was Sello Julius Malema one of the famous politicians in South Africa . He is determined by courageosness.
-
+ He has been humbleand and disciplined. 
+ Undersytanding his people, consulting teachers where he has challenges,being coperative,listening to the ideas and bringing them close eliminating fear
 
                                
                         WHAT HAVE YOU LEARNT ?
@@ -66,7 +66,6 @@ Preparing the next generation to be better leaders than we have been .
                                     
                        
                                     CHALLENGES FACED
-                                    
                               
  Moibilising people into one person because every one has different ideologies and if is not easy mobilising them.
  My fellow leader, some have shown that they are not her eto serve their people but show business.
@@ -86,11 +85,12 @@ Preparing the next generation to be better leaders than we have been .
 
 
  How did you feel when you were announced winner?
- I was really happy and wasnt actually that shocked because during the voting I was getting information from people. So when I was getting information from people . So when I was announced victor, I expected it.
-
+ He was really happy and wasnt actually that shocked because during the voting I was getting information from people.
+ So when I was getting information from people . So when I was announced victor, I expected it.
 
  Any challenges so far?
- so far the only challenge has been having to decide betweeen the students and teachers. It gets hard to make a decision that will make both parties happy without inconveniencing any of them.
+ so far the only challenge has been having to decide betweeen the students and teachers. 
+ It gets hard to make a decision that will make both parties happy without inconveniencing any of them.
  Any words of advice to your fellow students?
  Sometimes its better to listen to your heart and follow your instincts. Above all,pray to God and ask him to always help you.
 
@@ -132,12 +132,14 @@ Difficulty in balancing, revising for midterm and campaigning .
  INSPIRATION
 
  
- What inspired me to be a leader is the fact that it has always been my passion to been my passion to be the standing ovation for students and their strength in time of difficulty and belief for change.
+ What inspired me to be a leader is the fact that it has always been his passion
+ to be the standing ovation for students and their strength in time of difficulty and belief for change.
  
 
  
  EXPERIENCE.
- It has been an educative, and interesting adventure that mhas taught me to associate with different people of different people of different backgrounds, beliefs and self beliefs and how to manage peoples burdens and problems
+ It has been an educative, and interesting adventure that mhas taught me to associate with different people of different people of different backgrounds,
+ beliefs and self beliefs and how to manage peoples burdens and problems
 
  CHALLENGES
  I have always found difficulty in appeasing everyone with the decisions I take still know that a leader must make tough but right correct decisions
@@ -149,7 +151,9 @@ Difficulty in balancing, revising for midterm and campaigning .
  I have learnt to easily make friends and connections.
  
  FINAL REMARKS
- I actually advise everyone out there who thinks they cant achieve ther edreams just their disabilities or poor situations that they should strive to achieve there dreams hard and that no one will feel bad for them if they dont achieve them. They should trust God and stand strong and strike for the highest limit there is.
+ I actually advise everyone out there who thinks they cant achieve there dreams is just their disabilities or poor situations.
+ One  should strive to achieve there dreams hard and that no one will feel bad for them if they dont achieve them. 
+ They should trust God and stand strong and strike for the highest limit there is.
  
  DEPUTY HEAD PREFECT (ENID)
  
