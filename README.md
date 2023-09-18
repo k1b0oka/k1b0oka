@@ -172,8 +172,21 @@ Difficulty in balancing, revising for midterm and campaigning .
 EXPERIENCE
 Has experienced unity , togetherness , kindness and respect in the council body for the small time he has so far led in their regime.
 
+CLASSMONITORS
++Class monitors play a great role in the management of students at stream level.
+Being a mixed school, each stream chooses a boy and a girl who work as monitors.
+They are selected through a fair process by members of a stream with the guidance of a Class teacher.
 
-THE ROLES OF STUDENT LEADERS IN MENGO SENIOR SCHOOL
+Class monitors are headed by a Head monitor who is recognised as a prefect in the school.
+Depending on ones performance and popularity, some class monitors last even up to 4 years. 
+This means that they all do their best to keep a performing class in all aspects of student life.
+Class monitors control the class when a teacher is absent.
+They help in managing class affairs like cleaning, keeping class property, writing reports, discipline, collection of lesson text books among others.
+Class monitors are an important extension of the disciplinary structures of the school and even more important an extension of the school’s administration.
+They are a direct reflection of the streams they lead and that is why they are chosen carefully and respected.
+
+
+THE ROLES OF BODIES OF STUDENT LEADERS IN MENGO SENIOR SCHOOL
 
     To maintain discipline
     Ensure that prefects do their job of instilling discipline in the general student body.
