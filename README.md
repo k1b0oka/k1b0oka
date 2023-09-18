@@ -7,23 +7,23 @@ Head  prefect and deputy head prefect,
 
 Head girl and Deputy head girl,
 
-General duties,
+-General duties
 
-Academics prefects,
+-Academics prefects
 
-Protocal prefects,
+-Protocal prefects
 
-Displinary prefects,
+-Displinary prefects
 
-House Prefects,
+-House Prefects
 
-Mess Prefects,
+-Mess Prefects
 
-Chapel Prefects,
+-Chapel Prefects
 
-Sanitary Prefects,
+-Sanitary Prefects
 
-Entertainment Prefects,Timekeepers, and
+-Entertainment Prefects,Timekeepers, and
 Student Councillors.
 
 ![image](https://github.com/k1b0oka/k1b0oka/assets/140007928/a58781f6-883f-4b7c-8f23-19ad5a44b3d7)
