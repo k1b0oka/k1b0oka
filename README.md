@@ -75,16 +75,16 @@ Preparing the next generation to be better leaders than we have been .
  DHP O LEVEL - ABEHO MUKAMA GLEN.
  
  HOW DID YOU FEEL DURING ELECTIONS?
- A little bit pressureb by the competition he had with Rickson.
- He had a hard time accessing the whole school and convicing them to vote for him since most students in O level showed more love for the competitor.
+ A little bit pressured by the competition I had with Rickson.
+ I had a hard time accessing the whole school and convicing them to vote for mwe since most students in O level showed more love for the competitor.
 
 
  Did you have any fear of losing?
- Not at all . I was confident that I woul go through and by Gods gace I did.
+ Not at all . I was confident that I would go through and by Gods grace, I did.
 
 
  How did you feel when you were announced winner?
- He was really happy and wasnt actually that shocked because during the voting I was getting information from people.
+ I was really happy and wasnt actually that shocked because during the voting I was getting information from people.
  So when I was getting information from people . So when I was announced victor, I expected it.
 
  Any challenges so far?
